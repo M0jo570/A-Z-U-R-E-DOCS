@@ -1,2 +1,2 @@
-# A-Z-U-R-E-DOCS
+# Gentahax Dialog
 don't take along.
